@@ -1,4 +1,4 @@
-# Hi 👋 I'm Crystal
+# Hi 👋 I'm Zin Zin Thin Zaw ( Crystal)
 
 📚 Learning & Practice
 
